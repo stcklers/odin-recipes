@@ -1,0 +1,1 @@
+We makin some type of blog idk
